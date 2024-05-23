@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NgodingNgodong
-- 👀 I’m interested in kmy
+- 👀 I’m interested in kms
 - 🌱 I’m currently learning how to use gun to brain
 - 💞️ I’m looking to collaborate on death
 - 📫 How to reach me ouija board
