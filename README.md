@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on death
 - 📫 How to reach me ouija board
 - 😄 Pronouns: Hengker/Hengkers
-- ⚡ Fun fact: Ngga is not Nigga, but "no" in Bahasa Indonesia
+- ⚡ Fun fact: Ngga is not Nigga, but its a "no" in Bahasa Indonesia
 
 <!---
 NgodingNgodong/NgodingNgodong is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
